@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @anomalous-anonymous
 - 👀 I’m interested in Women
 - 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on my charity project and anything that helps those in need
 - 📫 How to reach me anomalous.alex.94@mail.com  
 - 😄 Pronouns: male
 - ⚡ Fun fact: there are no blue chemicals
